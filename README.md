@@ -220,4 +220,4 @@ Afterfall: InSanity is available as the **full free version**, including **all f
 **Download Afterfall: InSanity now and embark on a thrilling adventure that will challenge your fears and survival skills!**
 
 ---
-**Last updated:** 2026-11-01 01:44:27 UTC
+**Last updated:** 2026-11-01 08:30:27 UTC
